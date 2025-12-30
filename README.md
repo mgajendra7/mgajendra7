@@ -1,4 +1,4 @@
-![Profile Banner](https://raw.githubusercontent.com/ezmoneysniperx/ezmoneysniperx/main/linkedin.JPEG)
+
 
 
 ## **About me**
